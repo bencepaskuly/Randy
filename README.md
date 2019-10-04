@@ -1,2 +1,0 @@
-# Randy
-shoppy.gg/@bencepaskuly
